@@ -1,0 +1,1 @@
+computer is an electronic device.
